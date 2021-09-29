@@ -30,9 +30,9 @@
 ```
 因已無意願參加主辦發延期一年之活動「S2O泰國潑水音樂節」，故欲請求返還完整票款xxxx元。謝謝。
 ```
-
+附件：
+![](https://402850431.github.io/spunite_receipt.png)
 
 ---
 
 - 參考：[S2O全額退票分享](https://www.ptt.cc/bbs/electronic/M.1627883193.A.28A.html)  
-![](https://402850431.github.io/spunite_receipt.png)
